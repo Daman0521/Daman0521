@@ -1,7 +1,16 @@
-# My 12th marks 
-##
+#Daman-05.github.io
 
-|Subject| obtain marks|
-|--------|-------------|
-| math  |    98 |
-| eng  |    79 |
+#About me
+
+
+I am Damanpreet Kaur.I am from gill ludhiana.I am persuing BTECH in computer science engineering at GNDEC Ludhiana.
+
+#My 12th Marks 
+
+|subjects| Marks obtain Mark|
+|----------|----------|
+|Maths| 95|
+|Chemistry| 83|
+Physics| 64|
+|English| 77|
+|Punjabi| 79|
