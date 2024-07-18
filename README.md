@@ -1,13 +1,13 @@
-#Daman-05.github.io
+# Daman-05.github.io
 
-#About me
+# About me
 
 
 I am Damanpreet Kaur.I am from gill ludhiana.I am persuing BTECH in computer science engineering at GNDEC Ludhiana.
 
-#My 12th Marks 
+# My 12th Marks 
 
-|subjects| Marks obtain Mark|
+|subjects| obtained Mark|
 |----------|----------|
 |Maths| 95|
 |Chemistry| 83|
