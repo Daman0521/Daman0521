@@ -15,8 +15,8 @@ Physics| 64|
 |English| 77|
 |Punjabi| 79|
 # My hobbies 
-. Photography 
-. video's & photos editing 
+- Photography 
+- video's & photos editing 
 
 # My Excel certificate 
 ![certificate](IMG_20240722_201933.jpg)
