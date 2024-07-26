@@ -41,3 +41,11 @@ Some common uses of Excel include:
 6. _Business intelligence and analytics_
 7. _Education and research_
 
+# Induction program 2024
+
+I am glad to share my thoughts and experience about induction program which was conducted by  college from last two weeks.
+
+# First day at GNDEC 
+
+On first day at morning students of specific department gathered first at gurudwara sahib inside the college. It was very peaceful inside gurudwara sahib.I prayed to god that my engineering journey become memorable and successful for me.
+
