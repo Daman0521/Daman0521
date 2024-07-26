@@ -59,10 +59,10 @@ Er.Jiwandeep singh ,PCS and alumni of college given very useful tips to us for o
 # SSP Rajeshwar singh 
 
 sir inspired us with his past stories.sir encouraged us to embrace essential phrases:-
-1.I am sorry: which says accept mistakes 
-2.Forgive me: which seeks forgiveness.
-3.Thank you: which represents gratitude.
-4.I love you: which expresses acceptance.
+- I am sorry: which says accept mistakes.
+- Forgive me: which seeks forgiveness.
+- Thank you: which represents gratitude.
+-I love you: which expresses acceptance.
 
 # Second Day experience 
 
@@ -70,14 +70,16 @@ On second day Dr. Arvind Dhingra sir addressed us they explained
 
 types of membership
 
-Member
-Active Member
-Executive Member
-officer bearer
+- Member 
+- Active Member
+- Executive Member
+- officer bearer
+
+  
 types of societies
 
-National level associated( eg.SCIE,ISTE,SAE)
-Department level associated(EG.E2S2)
+- National level associated( eg.SCIE,ISTE,SAE)
+- Department level associated(EG.E2S2)
 
 # Third day at college 
 
