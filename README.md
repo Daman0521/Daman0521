@@ -62,7 +62,7 @@ sir inspired us with his past stories.sir encouraged us to embrace essential phr
 - I am sorry: which says accept mistakes.
 - Forgive me: which seeks forgiveness.
 - Thank you: which represents gratitude.
--I love you: which expresses acceptance.
+- I love you: which expresses acceptance.
 
 # Second Day experience 
 
