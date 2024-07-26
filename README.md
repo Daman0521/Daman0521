@@ -49,3 +49,4 @@ I am glad to share my thoughts and experience about induction program which was 
 
 On first day at morning students of specific department gathered first at gurudwara sahib inside the college. It was very peaceful inside gurudwara sahib.I prayed to god that my engineering journey become memorable and successful for me.
 
+![picture](IMG-20240726-WA0014.jpg)
