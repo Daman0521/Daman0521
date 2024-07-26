@@ -50,3 +50,35 @@ I am glad to share my thoughts and experience about induction program which was 
 On first day at morning students of specific department gathered first at gurudwara sahib inside the college. It was very peaceful inside gurudwara sahib.I prayed to god that my engineering journey become memorable and successful for me.
 
 ![picture](IMG-20240726-WA0014.jpg)
+At auditorium Pr. Dr. Sehijpal Singh,NSET Dir. S. Inderpal Singh  welcomed us to the beautiful GNDEC campus, introducing us to its stunning surroundings. The chief guest was also warmly received. Together, we explored the vibrant and inspiring environment of the college.
+
+# Er.Jiwandeep singh
+
+Er.Jiwandeep singh ,PCS and alumni of college given very useful tips to us for our 4 year engineering journey.sir told us that Seek out opportunities and seize them. Engage with long-form content to deepen your knowledge. Identify your passion as soon as possible.
+
+# SSP Rajeshwar singh 
+
+sir inspired us with his past stories.sir encouraged us to embrace essential phrases:-
+1.I am sorry: which says accept mistakes 
+2.Forgive me: which seeks forgiveness.
+3.Thank you: which represents gratitude.
+4.I love you: which expresses acceptance.
+
+# Second Day experience 
+
+On second day Dr. Arvind Dhingra sir addressed us they explained
+
+types of membership
+
+Member
+Active Member
+Executive Member
+officer bearer
+types of societies
+
+National level associated( eg.SCIE,ISTE,SAE)
+Department level associated(EG.E2S2)
+
+# Third day at college 
+
+A very humble person Dr.pyare lal garg addressed us Embrace your passions, maintain positivity, and view challenges as opportunities for growth. 
