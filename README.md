@@ -45,7 +45,7 @@ Some common uses of Excel include:
 
 I am glad to share my thoughts and experience about induction program which was conducted by  college from last two weeks.
 
-# First day at GNDEC 
+# 1st day at GNDEC 
 
 On first day at morning students of specific department gathered first at gurudwara sahib inside the college. It was very peaceful inside gurudwara sahib.I prayed to god that my engineering journey become memorable and successful for me.
 
@@ -64,7 +64,7 @@ sir inspired us with his past stories.sir encouraged us to embrace essential phr
 - Thank you: which represents gratitude.
 - I love you: which expresses acceptance.
 
-# Second Day experience 
+# 2nd  Day experience 
 
 On second day Dr. Arvind Dhingra sir addressed us they explained
 
@@ -81,7 +81,7 @@ Types of societies
 - National level associated( eg.SCIE,ISTE,SAE)
 - Department level associated(EG.E2S2)
 
-# Third day at college 
+# 3rd day at college 
 
 A very humble person Dr.pyare lal garg addressed us Embrace your passions, maintain positivity, and view challenges as opportunities for growth.Sir share us very nice lines of poetry. Sir said us if you want to shine then nothing is impossible.You do and believe your own self . If you want to do then you do what you like to do. Always think positive.
 ### Mr.Sony Goyal 
@@ -96,7 +96,7 @@ Mr. Goyal’s message extended beyond mere academic diligence; he urged us to le
 
   Mr.pancham is a 4 year ME student.His comunication skills are outstanding.He gave huge lessons of communication and body language .He shared practical insights on how to interpret non-verbal cues effectively, enhancing our understanding of interpersonal dynamics. Beyond theory, Mr. Pancham shared anecdotes and lessons from his leadership in various societies, inspiring us with his firsthand experiences. 
   
-# Forth day of induction program 
+# 4th day of induction program 
 
 Dr.Harwinder singh
 
@@ -113,7 +113,11 @@ He also told us how to join NSS and how it is helpful for all student. What is t
 Benefits of NSS:-
 
 
--Personality Development.
--It helps in acquiring leadership qualities and democratic attitude.
--It developer a sense of involvement in the task of nation building.
--It helps in developing positive attitude, self-confidence, courage & patience.
+- Personality Development.
+- It helps in acquiring leadership qualities and democratic attitude.
+  - It developer a sense of involvement in the task of nation building.
+- It helps in developing positive attitude, self-confidence, courage & patience.
+
+# 5th day at college 
+
+The first speaker was Kanwardeep Kalra who is an ICBI certified soft skill Firstly she showed us a small skit on how to speak,sit,behave in front of interviewer.She told main lesson on soft skills 
