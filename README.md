@@ -83,4 +83,5 @@ Types of societies
 
 # Third day at college 
 
-A very humble person ==Dr.pyare lal garg== addressed us Embrace your passions, maintain positivity, and view challenges as opportunities for growth. 
+A very humble person Dr.pyare lal garg addressed us Embrace your passions, maintain positivity, and view challenges as opportunities for growth. 
+## Mr.Sony Goyal
