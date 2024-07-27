@@ -54,7 +54,7 @@ At auditorium Pr. Dr. Sehijpal Singh,NSET Dir. S. Inderpal Singh  welcomed us to
 
 # Er.Jiwandeep singh
 
-Er.Jiwandeep singh ,PCS and alumni of college given very useful tips to us for our 4 year engineering journey.sir told us that Seek out opportunities and seize them. Engage with long-form content to deepen your knowledge. Identify your passion as soon as possible.
+Er.Jiwandeep singh ,PCS and alumni of college given very useful tips to us for our 4 year engineering journey.sir told us to seek out opportunities and seize them. Engage with long-form content to deepen your knowledge. Identify your passion as soon as possible.
 
 # SSP Rajeshwar singh 
 
@@ -68,7 +68,7 @@ sir inspired us with his past stories.sir encouraged us to embrace essential phr
 
 On second day Dr. Arvind Dhingra sir addressed us they explained
 
-types of membership
+Types of membership
 
 - Member 
 - Active Member
@@ -76,11 +76,11 @@ types of membership
 - officer bearer
 
   
-types of societies
+Types of societies
 
 - National level associated( eg.SCIE,ISTE,SAE)
 - Department level associated(EG.E2S2)
 
 # Third day at college 
 
-A very humble person Dr.pyare lal garg addressed us Embrace your passions, maintain positivity, and view challenges as opportunities for growth. 
+A very humble person ==Dr.pyare lal garg== addressed us Embrace your passions, maintain positivity, and view challenges as opportunities for growth. 
