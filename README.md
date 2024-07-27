@@ -52,11 +52,11 @@ On first day at morning students of specific department gathered first at gurudw
 ![picture](IMG-20240726-WA0014.jpg)
 At auditorium Pr. Dr. Sehijpal Singh,NSET Dir. S. Inderpal Singh  welcomed us to the beautiful GNDEC campus, introducing us to its stunning surroundings. The chief guest was also warmly received. Together, we explored the vibrant and inspiring environment of the college.
 
-## Er.Jiwandeep singh
+### Er.Jiwandeep singh
 
 Er.Jiwandeep singh ,PCS and alumni of college given very useful tips to us for our 4 year engineering journey.sir told us to seek out opportunities and seize them. Engage with long-form content to deepen your knowledge. Identify your passion as soon as possible.
 
-## SSP Rajeshwar singh 
+### SSP Rajeshwar singh 
 
 sir inspired us with his past stories.sir encouraged us to embrace essential phrases:-
 - I am sorry: which says accept mistakes.
@@ -84,7 +84,12 @@ Types of societies
 # Third day at college 
 
 A very humble person Dr.pyare lal garg addressed us Embrace your passions, maintain positivity, and view challenges as opportunities for growth.Sir share us very nice lines of poetry. Sir said us if you want to shine then nothing is impossible.You do and believe your own self . If you want to do then you do what you like to do. Always think positive.
-## Mr.Sony Goyal 
+### Mr.Sony Goyal 
 Mr.sony goyal is also a very nice personality.He gave us very deep knowledge.He inspired us very much .sir gave us lesson to give your 100% and also told us to love what you do .
-     Btech 4years Life
-1- Learn     
+    ### Btech 4years Life
+- Learn
+- Inquire
+- Future
+- Explore
+
+  
