@@ -86,10 +86,33 @@ Types of societies
 A very humble person Dr.pyare lal garg addressed us Embrace your passions, maintain positivity, and view challenges as opportunities for growth.Sir share us very nice lines of poetry. Sir said us if you want to shine then nothing is impossible.You do and believe your own self . If you want to do then you do what you like to do. Always think positive.
 ### Mr.Sony Goyal 
 Mr.sony goyal is also a very nice personality.He gave us very deep knowledge.He inspired us very much .sir gave us lesson to give your 100% and also told us to love what you do .
-    ### Btech 4years Life
+ Btech 4years Life:-
 - Learn
 - Inquire
 - Future
 - Explore
+Mr. Goyal’s message extended beyond mere academic diligence; he urged us to learn with passion and dedication, not just with our minds but with our hearts and souls. His session was not only informative but also entertaining, leaving an enduring impact on everyone present. We will remember and apply his insights throughout our engineering journey.
 
+
+  Mr.pancham is a 4 year ME student.His comunication skills are outstanding.He gave huge lessons of communication and body language .He shared practical insights on how to interpret non-verbal cues effectively, enhancing our understanding of interpersonal dynamics. Beyond theory, Mr. Pancham shared anecdotes and lessons from his leadership in various societies, inspiring us with his firsthand experiences. 
   
+# Forth day of induction program 
+
+Dr.Harwinder singh
+
+He is associate NCC Officer (ANO)
+
+He told us what is the perpose of join NCC .what are the benifites. How to join ?
+
+Er.Jasvir singh grewal
+
+Incharge of NSS
+
+He also told us how to join NSS and how it is helpful for all student. What is the role of NSS students?
+
+Benefits of NSS:-
+
+-Personality Development.
+-It helps in acquiring leadership qualities and democratic attitude.
+-It developer a sense of involvement in the task of nation building.
+-It helps in developing positive attitude, self-confidence, courage & patience.
