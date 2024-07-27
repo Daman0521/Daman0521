@@ -115,9 +115,14 @@ Benefits of NSS:-
 
 - Personality Development.
 - It helps in acquiring leadership qualities and democratic attitude.
-  - It developer a sense of involvement in the task of nation building.
+- It developer a sense of involvement in the task of nation building.
 - It helps in developing positive attitude, self-confidence, courage & patience.
 
 # 5th day at college 
 
-The first speaker was Kanwardeep Kalra who is an ICBI certified soft skill Firstly she showed us a small skit on how to speak,sit,behave in front of interviewer.She told main lesson on soft skills 
+The first speaker was Kanwardeep Kalra who is an ICBI certified soft skill Firstly she showed us a small skit on how to speak,sit,behave in front of interviewer.She told main lesson on soft skills. She also told  us always smile don’t panic in your interview.To introduce yourself professionally in an interview, start with a polite greeting, state your full name, mention your educational background and relevant work experience.
+
+### Jaswinder singh 
+incharge of IAPT
+
+Jaswinder singh a very humble personality.He is a great source of science knowledge..He is national awarded(shiksha ratan) (inventor lab on wheels). He gave us a huge knowledge about science and mathematics.Sir told us a brilliant trick to count bones in our body he said there are 26 bones in our each feet,27 bones in our each hand ,28 bones in our face,skull,total 52 bones in our chest,5 bones in each arm,5 bones in each leg.
