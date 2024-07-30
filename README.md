@@ -14,9 +14,6 @@ I am Damanpreet Kaur.I am from gill ludhiana.I am persuing BTECH in computer sci
 Physics| 64|
 |English| 77|
 |Punjabi| 79|
-# My hobbies 
-- Photography 
-- video's & photos editing 
 
 # My Excel certificate 
 ![certificate](IMG_20240722_201933.jpg)
